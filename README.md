@@ -14,7 +14,7 @@
 𖦹 C+H always!! I do not gaf do whatever 🪻 I LIKE TALKING TO PEOPLE!!! INT W ME!!! also ask me about ships i will be <del>ab</del>normal
 </p>
 <p align="center">
-𖦹 ints ;; <b>forsaken, phighting,</b> pressure, gasa4, etc <i>(my memory sucks)</i>
+𖦹 ints ;; <b>forsaken, phighting,</b> pressure, gasa4, etc. . . <i>(my memory sucks)</i>
 </p>
 
 ![image](https://github.com/user-attachments/assets/015d5b8a-73ca-4f85-8421-6bd59ec75bd6)

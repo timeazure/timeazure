@@ -21,6 +21,9 @@
 𖦹 C+H always!! I do not gaf do whatever 🪻 I LIKE TALKING TO PEOPLE!!! INT W ME!!! Also ask me about ships I will be <del>ab</del>normal. On that topic idm if ships interact! I think it's fun LOL, if anything it is encouraged ^_^
 </p>
 <p align="center">
+𖦹 Only friend me if u're 16+ pleaaaaaaaseeeee
+</p>
+<p align="center">
 𖦹 ints ;; <b>Forsaken, Phighting,</b> Pressure, GASA4, etc. . . <i>(my memory sucks)</i>
 </p>
 

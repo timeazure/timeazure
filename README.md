@@ -31,5 +31,5 @@
 <p align="center">
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=timeazure&label=Spawn%20Members..&color=a259ff&style=flat" alt="Spawn Members.. badge" />
+  <img src="https://komarev.com/ghpvc/?username=timeazure&label=✴%20Spawn%20Members%20&color=a259ff&style=flat" alt="✴ Spawn Members badge" />
 </p>

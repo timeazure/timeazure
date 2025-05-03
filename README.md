@@ -28,4 +28,8 @@
 <p align="center">
 𖦹 ints ;; <b>Forsaken, Phighting,</b> Pressure, GASA4, etc. . . <i>(my memory sucks)</i>
 </p>
+<p align="center">
+  
+![Spawn Members](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Ftimeazure%2Ftimeazure&count_bg=%23a259ff&title_bg=%23555555&icon=github.svg&icon_color=%23FFFFFF&title=Spawn%20Members..&edge_flat=false)
 
+![Spawn Members..](https://img.shields.io/badge/Spawn%20Members..-0A0A23?style=for-the-badge&logo=github&logoColor=white&labelColor=a259ff&color=7f39fb)

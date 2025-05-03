@@ -29,5 +29,7 @@
 𖦹 ints ;; <b>Forsaken, Phighting,</b> Pressure, GASA4, etc. . . <i>(my memory sucks)</i>
 </p>
 <p align="center">
-  
 
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=timeazure&label=Spawn%20Members..&color=a259ff&style=flat" alt="Spawn Members.. badge" />
+</p>

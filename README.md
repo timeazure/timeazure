@@ -26,7 +26,7 @@
 𖦹 Only friend me if you're 16+ pleaaaaaaaseeeee.................
 </p>
 <p align="center">
-𖦹 ints ;; <b>Forsaken, SCP, Phighting,</b> Pressure, GASA4, etc. . . <i>(my memory sucks)</i>
+𖦹 ints ;; <b>Forsaken, SCP (PLEAS EITNERACT WITHB EMEEE :sob:) , Phighting,</b> Pressure, GASA4, etc. . . <i>(my memory sucks)</i>
 </p>
 <p align="center">
 

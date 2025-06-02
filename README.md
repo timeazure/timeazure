@@ -23,10 +23,10 @@
 𖦹 TC, C+H always!! I do not gaf do whatever 🪻 I LIKE TALKING TO PEOPLE!!! INT W ME!!! Also ask me about ships I will be <del>ab</del>normal. On that topic idm if ships interact! I think it's fun LOL, if anything it is encouraged ^_^
 </p>
 <p align="center">
-𖦹 Only friend me if you're 16+ pleaaaaaaaseeeee
+𖦹 Only friend me if you're 16+ pleaaaaaaaseeeee.................
 </p>
 <p align="center">
-𖦹 ints ;; <b>Forsaken, Phighting,</b> Pressure, GASA4, etc. . . <i>(my memory sucks)</i>
+𖦹 ints ;; <b>Forsaken, SCP, Phighting,</b> Pressure, GASA4, etc. . . <i>(my memory sucks)</i>
 </p>
 <p align="center">
 

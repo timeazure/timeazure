@@ -1,35 +1,42 @@
 <p align="center">
-<i>❝ I'll break your bones with all the love I carry, keep you close</i>
+<i>❝ With the barrel pointing at my face, I'm knocking on her sinful door</i>
 </p>
 <p align="center">
   <img
-    src="https://github.com/user-attachments/assets/6edcb51b-da2c-40e8-a091-91adecb5a11e">
+    src="https://i.imgur.com/tqfAPd0.png"
+    />
 </p>
 <p align="center">
-<i>and, one day, we'll get married .ᐟ ∼  ‪‪❤︎ ‬❞</i>
+<i>the trigger seals the act of grace, (s)he'll never call me anymore ｡ ｡ ｡  ‪‪✚ ‬❞</i>
 </p>
 
-![image](https://github.com/user-attachments/assets/015d5b8a-73ca-4f85-8421-6bd59ec75bd6)
+<p align="center">
+  <img
+    src="https://dividers.crd.co/assets/images/gallery04/78888657.png?v=05d33f91"
+  />
+</p>
+
+
 
  <p align="center">
- 𖦹 <b>Azure // Ev</b> <i>?!</i> 🪻 Spawn's strongest Azuretimer & the #2 Azuretimetrapped fan
+ 💉 <b>Med // Ev</b> <i>?!</i> 💉 I don't have an active hyperfixation so this is kind of boring #sorry
 </p>  
 <p align="center">
- 𖦹 he/him 🪻 17 🪻 <b>Azure</b> + ITrapped fictkin #insane
+ 👁 he/him 𓄧 18 👁 fictkin #insane
 </p>
 <p align="center">
- 𖦹 <b>🟢 - ingame & 🌙 - offtab/afk</b>
+ 🩺 <b>🟢 - ingame & 🌙 - offtab/afk</b>
 <p align="center">
-𖦹 TC, C+H always!! I do not gaf do whatever 🪻 I LIKE TALKING TO PEOPLE!!! INT W ME!!! Also ask me about ships I will be <del>ab</del>normal. On that topic idm if ships interact! I think it's fun LOL, if anything it is encouraged ^_^
+💊 TC, C+H always!! I do not gaf do whatever 💊 I LIKE TALKING TO PEOPLE!!! INT W ME!!! Also ask me about ships I will be <del>ab</del>normal. On that topic idm if ships interact! I think it's fun LOL, if anything it is encouraged ^_^
 </p>
 <p align="center">
-𖦹 Only friend me if you're 16+ pleaaaaaaaseeeee.................
+🔷 Only friend me if you're 16+ pleaaaaaaaseeeee.................
 </p>
 <p align="center">
-𖦹 ints ;; <b>Forsaken, SCP (PLEAS EITNERACT WITHB EMEEE :sob:) , Phighting,</b> Pressure, GASA4, etc. . . <i>(my memory sucks)</i>
+🦌 ints ;; <b>SCP (PLEAS EITNERACT WITHB EMEEE :sob:) , Phighting,</b> Pressure, GASA4, etc. . . <i>(my memory sucks)</i>
 </p>
 <p align="center">
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=timeazure&label=✴%20Spawn%20Members%20&color=a259ff&style=flat" alt="✴ Spawn Members badge" />
+  <img src="https://komarev.com/ghpvc/?username=timeazure&label=👁%20TRUE%20EYE%20Members%20&color=20c5aa&style=flat" alt="👁 TRUE EYE Members badge" />
 </p>

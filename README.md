@@ -22,7 +22,7 @@
  💉 <b>Med // Ev</b> <i>?!</i> 💉 I don't have an active hyperfixation so this is kind of boring #sorry
 </p>  
 <p align="center">
- 👁 he/him 𓄧 18 👁 fictkin #insane
+ 👁 he/him 𓄧 18 👁 fictkin of many (<i>azure, boombox, medkit, etc)</i> #insane
 </p>
 <p align="center">
  🩺 <b>🟢 - ingame & 🌙 - offtab/afk</b>

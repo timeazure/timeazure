@@ -30,7 +30,7 @@
 💊 TC, C+H always!! I do not gaf do whatever 💊 I LIKE TALKING TO PEOPLE!!! INT W ME!!! Also ask me about ships I will be <del>ab</del>normal. On that topic idm if ships interact! I think it's fun LOL
 </p>
 <p align="center">
-🔷 Only friend me if you're 16+ pleaaaaaaaseeeee.................
+🔷 Only friend me if you're 16+ pleaaaaaaaseeeee................. also no I'm not following your main . Leave me Alone
 </p>
 <p align="center">
 🦌 ints ;; <b>SCP (PLEAS EITNERACT WITHB EMEEE :sob:) , Phighting,</b> Pressure, GASA4, etc. . . <i>(my memory sucks)</i>

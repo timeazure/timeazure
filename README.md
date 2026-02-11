@@ -38,5 +38,5 @@
 <p align="center">
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=timeazure&label=👁%20TRUE%20EYE%20Members%20&color=20c5aa&style=flat" alt="👁 TRUE EYE Members badge" />
+  <img src="https://komarev.com/ghpvc/?username=timeazure&label=👁%20TRUE%20EYE%20Members%20%20&color=20c5aa&style=flat" alt="👁 TRUE EYE Members badge" />
 </p>

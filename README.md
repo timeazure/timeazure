@@ -27,7 +27,7 @@
 <p align="center">
  🩺 <b>🟢 - ingame & 🌙 - offtab/afk</b>
 <p align="center">
-💊 TC, C+H always!! I do not gaf do whatever 💊 I LIKE TALKING TO PEOPLE!!! INT W ME!!! Also ask me about ships I will be <del>ab</del>normal. On that topic idm if ships interact! I think it's fun LOL
+💊 TC, C+H always!!!! PLS CUDDLE ME I LOVE IT.!!!!! 💊 I LIKE TALKING TO PEOPLE!!! INT W ME!!! Also ask me about ships I will be <del>ab</del>normal. On that topic idm if ships interact! I think it's fun LOL
 </p>
 <p align="center">
 🔷 Only friend me if you're 16+ pleaaaaaaaseeeee................. also no I'm not following your main . Leave me Alone

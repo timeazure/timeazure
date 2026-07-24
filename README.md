@@ -1,5 +1,5 @@
 <p align="center">
-<i>❝ I want him to stay here forever, he's happiest with me, cause he—</i>
+<i>❝ Don't call me selfish, I ain't sharin'. This 60/40 isn't working,</i>
 </p>
 <p align="center">
   <img
@@ -7,7 +7,7 @@
     />
 </p>
 <p align="center">
-<i> —he's my man, and i'll love him like nobody else can ｡ ｡ ｡  ‪‪✚ ‬❞</i>
+<i> I want 100 of your time, you're</i> <b>mine<b> </i>｡ ‪‪✚ ‬❞</i>
 </p>
 
 <p align="center">

@@ -1,6 +1,12 @@
 <p align="center">
 <i>❝ Don't call me selfish, I ain't sharin', This 60/40 isn't working,</i>
 </p>
+
+<p align="center">
+<a href="https://x.com/Space7Human/status/2066938417192292571">©</a>
+</p>
+
+
 <p align="center">
   <img
     src="https://i.imgur.com/8RwqPVw.png"

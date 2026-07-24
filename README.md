@@ -7,7 +7,7 @@
     />
 </p>
 <p align="center">
-<i> I want 100 of your time, you're</i> <b>mine<b> </i>｡ ‪‪✚ ‬❞</i>
+<i> I want a hundred of your time, you're</i> <b>mine<b> </i>｡ ‪‪✚ ‬❞</i>
 </p>
 
 <p align="center">

@@ -1,5 +1,5 @@
 <p align="center">
-<i>❝ he's happiest me with me, cause he—</i>
+<i>❝ I want him to stay here forever, he's happiest with me, cause he—</i>
 </p>
 <p align="center">
   <img

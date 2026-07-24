@@ -3,14 +3,14 @@
 </p>
 
 <p align="center">
-<a href="https://x.com/Space7Human/status/2066938417192292571">©</a>
-</p>
-
-
-<p align="center">
   <img
     src="https://i.imgur.com/8RwqPVw.png"
     />
+<p align="center">
+<a href="https://x.com/Space7Human/status/2066938417192292571">©</a>
+</p>
+
+  
 </p>
 <p align="center">
 <i> I want a hundred of your time, you're</i> <b>mine</b> </i>｡ ‬❞</i>

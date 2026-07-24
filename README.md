@@ -1,5 +1,5 @@
 <p align="center">
-<i>❝ With the barrel pointing at my face, I'm knocking on her sinful door</i>
+<i>❝ he's happiest me with me, cause he—</i>
 </p>
 <p align="center">
   <img
@@ -7,7 +7,7 @@
     />
 </p>
 <p align="center">
-<i>the trigger seals the act of grace, (s)he'll never call me anymore ｡ ｡ ｡  ‪‪✚ ‬❞</i>
+<i> —he's my man, and i'll love him like nobody else can ｡ ｡ ｡  ‪‪✚ ‬❞</i>
 </p>
 
 <p align="center">

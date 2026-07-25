@@ -1,5 +1,5 @@
 <p align="center">
-<i>❝ Don't call me selfish, I ain't sharin', This 60/40 isn't working,</i>
+<i>❝ Don't call me selfish, I ain't sharin', this 60/40 isn't working—</i>
 </p>
 
 <p align="center">

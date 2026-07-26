@@ -39,7 +39,7 @@
 📜 Only friend me if you're 16+ pleaaaaaaaseeeee................. also no I'm not following your main . Leave me Alone
 </p>
 <p align="center">
-☺ ints ;; <b>SCP (PLEAS EITNERACT WITHB EMEEE :sob:), Phighting, SIKAYD,</b> Pressure, GASA4, etc. . . <i>(my memory sucks)</i>
+☺ ints ;; <b>SCP (PLEAS EITNERACT WITHB EMEEE :sob:), Phighting, SIKAYD,</b>, GASA4, etc. . . <i>(my memory sucks.)</i>
 </p>
 <p align="center">
 

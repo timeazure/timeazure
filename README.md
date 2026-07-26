@@ -28,7 +28,7 @@
  🔦 <b>Mob // Ev</b> <i>?!</i> 🔦
 </p>  
 <p align="center">
- 👁 he/him 𓄧 18 👁 fictkin of many (<i>mob, boombox, medkit, etc)</i> #insane
+ 👁 he/him 𓄧 18 👁 fictkin of many (<i><b>mob</b>, <b>boombox</b>, medkit, etc)</i> #insane
 </p>
 <p align="center">
  ⚔ <b>🟢 - ingame & 🌙 - offtab/afk</b>
